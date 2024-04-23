@@ -32,3 +32,17 @@ Un breve [presentazione](https://andreavitaletti.github.io/un_computer_per_tutti
 ## Alcune foto dell'evento
 
 ![](assets/images/2024-04-23-08-43-33.png)
+
+![](assets/images/2024-04-23-08-44-25.png)
+
+![](assets/images/2024-04-23-08-45-08.png)
+
+![](assets/images/2024-04-23-08-45-49.png)
+
+![](assets/images/2024-04-23-08-46-18.png)
+
+## Solidarietà
+
+Il cibo che non abbiamo consumato durante il coffe break ed il pranzo è stato donato alla Comunità di Sant'Egidio che lo ha distribuito durante il pranzo dell'Amicizia Domenica 21 Aprile a San Bartolomeo. 
+
+![](assets/images/2024-04-23-08-48-25.png)
